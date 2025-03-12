@@ -1,3 +1,5 @@
+# FREE BRUTER IN https://discord.gg/fBFS82xe
+
 # Rostile-bypass
 these larps should stop selling this for 1000$+ its legit a goddamn cookie omfgg
 
